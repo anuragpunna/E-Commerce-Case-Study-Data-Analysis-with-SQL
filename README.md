@@ -90,7 +90,7 @@ The analysis will deliver:
 ---
 
 ## Contact
-For any questions or feedback, feel free to contact [Your Name] at [Your Email].
+For any questions or feedback, feel free to contact P Naga Sai Ganesh Anurag at anuragpunna19@gmail.com.
 
 ---
 
